@@ -1,1 +1,1 @@
-https://raaaaaaaaaaaaaaaaaaaaar.on.drv.tw/www.idkidkgameserver.com/1index.html
+https://drive.google.com/file/d/1w9gf-qmc-LqBXv8ZDhm4lQzJeoZhRsMW/view
